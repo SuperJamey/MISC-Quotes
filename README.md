@@ -1,4 +1,5 @@
-# Quotes
-Quotes to remember...
+# Quotes & Roses
+Quotes to remember...Roses for any occasion!
 
-![image](https://user-images.githubusercontent.com/102421586/216793865-a40ad14e-58e3-4de7-a569-3b501f2f15f5.png)
+![image](https://user-images.githubusercontent.com/102421586/216796565-eca6c618-4a2a-4323-aa4f-8f767f7089ba.png)
+
